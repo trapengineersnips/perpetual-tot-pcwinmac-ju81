@@ -1,4 +1,4 @@
-# 
+# VIP perpetual trading bot add-ons for Mac OS | Exclusive perpetual trading bot add-ons for PC Windows. Featuring liquidation detection and router optimization — optimized for maximum performance on every platform.
 
 
 
